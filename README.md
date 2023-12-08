@@ -1,0 +1,1 @@
+# manejamentu_dadus_eskola
